@@ -1,4 +1,4 @@
-# 
+# Premium Avast Premium Security extensões para Mac OS | Exclusivo Avast Premium Security extensões para PC Windows. Com bloqueador de anúncios e rastreamento de largura de banda — otimizado para máximo desempenho em cada plataforma.
 
 
 
